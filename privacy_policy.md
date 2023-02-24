@@ -105,4 +105,4 @@ We may update our Privacy Policy from time to time. We will notify you of any ch
 
 if you have any questions about this Privacy Policy, please contact us:
 
-By email: syafira.crm@gmail.com
+By email: rssyafira.it@gmail.com
